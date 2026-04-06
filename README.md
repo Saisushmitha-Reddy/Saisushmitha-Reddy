@@ -1,4 +1,4 @@
-# Hi, I'm Sai Sushmitha 👋
+# Hi, I'm Sai👋
 
 **Product Manager** · M.S. Information Systems, University of Florida · Engineering background
 
